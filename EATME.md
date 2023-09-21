@@ -1,5 +1,5 @@
 
-<h1 align="center">~ TownofHost Edited ~</h1>
+<h1 align="center">~ EATME MOE ~</h1>
 
 <br>
 
