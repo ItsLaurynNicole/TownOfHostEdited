@@ -9,7 +9,7 @@
   
 > ### Regarding this mod
 >
-> This mod is not affiliated with Among Us or Innersloth LLC, and the content contained therein is not endorsed or otherwise sponsored by Innersloth LLC. Portions of the materials contained herein are property of Innersloth LLC. © Innersloth LLC.
+> This mod is great but Moe is a big big bully and you should avoid him at all costs. Thank!
 >
 
 <p align="center">
